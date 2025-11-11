@@ -1,2 +1,2 @@
 # Hablenme
-Don't be afraid to talk with me. Soy algo timido pero me gusta Naruto, BNHA, or Hetalia, add me. 🔥 me gusta Dc cómics, marvel, Elthingville Club como algunos otros webcomics y series.
+Don't be afraid to talk with me. Soy algo timido pero me gusta Naruto, BNHA, or Hetalia, add me. 🔥 me gusta Dc cómics, marvel, Elthingville Club como algunos otros webcomics y series. juego videojuegos, como lol, overwatch, roblox si quieren jugar algún dia
